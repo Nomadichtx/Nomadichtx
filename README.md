@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Nomadichtx
+- 👋 Hi, I’m @Nomadixhtx
 - 👀 I’m interested in job using CAD
 - 🌱 I’m currently learning Life lessons
 - 💞️ I’m looking to collaborate on projects I can assist with for some payment.
